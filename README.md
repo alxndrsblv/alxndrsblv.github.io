@@ -1,3 +1,3 @@
-# alxndrsblv.github.io
+Alexander Sobolev
 
-Russian Law in plain Russian
+Russian Law in Plain English
